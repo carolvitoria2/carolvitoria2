@@ -1,4 +1,4 @@
-## boas vinda ao meu pérfil 💙
+## boas vinda ao meu perfil 💙
 
 Meu nome e Caroliny Vitoria
 
